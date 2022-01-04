@@ -1,1 +1,0 @@
-# obesity_Task_Banner
